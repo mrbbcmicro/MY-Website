@@ -7,4 +7,4 @@ The web address will be www.tnttitan.com
 Notes
 =====
 
-Kepp updated!
+Keep updated!
